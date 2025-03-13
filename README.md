@@ -9,5 +9,4 @@
 <!---
 Pawanpatell7/Pawanpatell7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
-https://www.instagram.com/iam_cineman2.0?igsh=bmM3eXV1cmJvam8z
+---> https://www.instagram.com/pawanpatell8?igsh=YzY4cXN0N3lvc3Z3
